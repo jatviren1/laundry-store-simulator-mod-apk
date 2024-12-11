@@ -4,7 +4,7 @@
 
 **Laundry Store Simulator Mod APK** adalah game simulasi Android yang memungkinkan Anda merasakan pengalaman mengelola bisnis laundry. Dalam game ini, Anda memulai dengan toko kecil dan bertujuan untuk mengembangkannya menjadi kerajaan laundry yang sukses. Dengan fitur **unlimited money**, Anda dapat dengan mudah meningkatkan peralatan, mendesain toko, dan memberikan layanan pelanggan terbaik tanpa batasan sumber daya.
 
-## =>> Unduh Disini: https://modhello.com/
+## =>> Unduh Disini: https://modhello.com/id/laundry-store-simulator/
 
 Game ini memberikan pengalaman simulasi bisnis yang realistis dan menyenangkan, didukung dengan grafis menarik dan gameplay yang interaktif.
 
